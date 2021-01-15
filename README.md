@@ -1,1 +1,1 @@
-The system cannot find the file specified.
+Aici a fost Roman Lupasco
